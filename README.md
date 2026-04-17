@@ -6,6 +6,7 @@ hi im hax or avery idk
 sign my ata an d draw on my strawp please and thank you ok bye
 
 no ata or strawp for this guy cuz im working on it but heres the old oens
+
 <a href="https://kingscourge.atabook.org">⋆˚꩜｡ ATA ⋆｡𖦹°⭒˚｡⋆</a> <br>
 <a href="https://pacestv.straw.page/">₊˚°.♱˙⋆✮STRAWP˚₊‧⁺⋆♱
 
