@@ -1,5 +1,8 @@
 <div align=center>
-<img width="736" height="729" alt="aha i like my avery drawing ther eya thats mine ok" src="https://github.com/user-attachments/assets/d6ec7851-fbca-400f-829f-9ae36035a391" />
+  
+![](https://komarev.com/ghpvc/?username=haxxor2&color=19a417&label=H4XX0R+V1CT1M5!!)
+
+  <img width="736" height="729" alt="aha i like my avery drawing ther eya thats mine ok" src="https://github.com/user-attachments/assets/d6ec7851-fbca-400f-829f-9ae36035a391" />
 
 hi im hax or avery idk 
 
