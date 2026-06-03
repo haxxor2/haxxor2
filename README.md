@@ -1,10 +1,10 @@
 <div align=center>
+
+<img src="https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&size=23&pause=500&color=f30805&center=true&vCenter=true&width=435&lines=the+water+never+leaves+my+lungs..;my+foot+never+breaks+the+chain..;the+pain+never+stops..;but+i+must+stay+strong.;somehow..;sometime..;something+will+bring+me+release..">
   
 ![](https://komarev.com/ghpvc/?username=haxxor2&color=19a417&label=H4XX0R+V1CT1M5!!)
 
-  <img width="736" height="729" alt="aha i like my avery drawing ther eya thats mine ok" src="https://github.com/user-attachments/assets/d6ec7851-fbca-400f-829f-9ae36035a391" />
-
-hi im hax or avery idk 
+hi im hax or sink or poison idk 
 
 sign my ata an d draw on my strawp please and thank you ok bye
 
