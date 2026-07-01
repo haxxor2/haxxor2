@@ -7,7 +7,7 @@ hi im hax or sink or poison idk
 sign my ata an d draw on my strawp please and thank you ok bye
 
 <a href="https://deadlypoisonn.atabook.org">⋆˚꩜｡ ATA ⋆｡𖦹°⭒˚｡⋆</a> <br>
-<a href="https://ohforeversinking.straw.page/">₊˚°.♱˙⋆✮STRAWP˚₊‧⁺⋆♱
+<a href="https://youroldfriendx.straw.page/">₊˚°.♱˙⋆✮STRAWP˚₊‧⁺⋆♱
 
 ^^ what the HELL do i add to ts
 
